@@ -11,3 +11,5 @@ The haircut place was right next to a place called ShopRite. This is a store my 
 I still can't believe she's gone though. I've been thinking that there's a real possibility I won't have her in my life for 1/2 of my lifetime now (and possibly 2/3 depending on how long I live for). Like, that really doesn't sit well with me at all. It just feels so, so, so wrong. I feel like I'm in another timeline and I don't belong in this one.
 
 I later received a card from my sister that was from my Mom. Apparently my Mom kept a box full of cards she had collected to hand out to each family member for the holidays. They didn't have anything written from her in it, but still something precious and important to me. I felt really sad feeling it, but I haven't cried or broke down yet (I think I'm just feeling mostly today).
+
+I spent the evening watching a movie with my Dad since it's his birthday. We also ate hoagies for dinner.
