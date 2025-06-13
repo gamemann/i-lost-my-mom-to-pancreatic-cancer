@@ -7,3 +7,6 @@ I know it's a bit odd to have public journal entries, but I'm really hoping they
 * [Day 2](./day-2.md) (6-7-25)
 * [Day 4](./day-4.md) (6-9-25)
 * [Day 5](./day-5.md) (6-10-25)
+* [Day 6](./day-6.md) (6-11-25)
+* [Day 7](./day-7.md) (6-12-25)
+* [Day 8](./day-8.md] (6-13-25)
