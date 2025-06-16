@@ -1,4 +1,4 @@
-**Journal Entry Started At 7:57 PM EST on June 12th**
+**Journal Entry Started At 7:57 PM EST on June 15th**
 
 Today I had to get clothes for the funeral tomorrow which I've been absolutely dreading. Spent $180 or so on shoes, a shirt, and pants. I was never a dresser, so I didn't really have any proper clothes for a funeral. I could have used my Mom's advice there lol, but what I got is fine anyways.
 
