@@ -1,0 +1,9 @@
+**Journal Entry Started At 7:57 PM EST on June 12th**
+
+Today I had to get clothes for the funeral tomorrow which I've been absolutely dreading. Spent $180 or so on shoes, a shirt, and pants. I was never a dresser, so I didn't really have any proper clothes for a funeral. I could have used my Mom's advice there lol, but what I got is fine anyways.
+
+Afterwards I went to the new house that I'm moving into which is getting stuff done to it right now. Just figuring out where I'm going to put all my tech equipment and such since this new house is much different than my childhood home. At least we'll be able to get FIOS with fiber still and not have to rely on Comcast/Xfinity for Internet (which for some reason have bandwidth caps in 2025 for whatever reason).
+
+I then went to my older half-brother's house to celebrate my Dad for Father's Day (their dad as well, but we don't have the same Mom). My half-sister was there as well (on my Dad's side). My older half-brother and sister also have kids which were there as well. I didn't talk much due to everything going on with the grief, etc., although there were some moments I laughed from some jokes they said. It just feels very short-lasting and then I'm left with dealing with the pains of grief again from my thoughts. They also had a radio that played a lot of songs from the 2000s which gave me flashbacks to my childhood (which included my Mom a lot, so it was kind of sad).
+
+Anyways, probably going to relax the rest of the night and get sleep for the big awful day tomorrow. Apparently there are hundreds of people coming to the funeral tomorrow and while I am a little happy/excited to see some people tomorrow I've been wanting to see, I just feel so mentally exhausted from everything and I just have no clue how I'm going to react to this funeral yet. I haven't cried in a few days since I've been really numb and my mind is basically fogged.
