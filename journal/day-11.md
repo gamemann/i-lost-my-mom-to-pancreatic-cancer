@@ -6,3 +6,4 @@ We then had a party/lunch afterwards which was nice. What kept hurting a lot tho
 
 I found out all of my counsins will be going to the beach house my Aunt rented for two weeks in July which I was planning to stay the full two weeks at. That's something I'm looking forward to, although I think I'm going to be very sad without my Mom. I just want to spend more time with the family overall.
 
+Anyways, after sleeping for a few hours after I got back (I was just so mentally drained and exhausted), I watched the end of the Phillies game with my Dad (they won!). Then I came up here to write this. I'm still crying from above, but that made me feel a little better. I just miss her so much and miss watching movies with her. I haven't even be able to watch any movies or shows really because it's still so painful to me (most movies/shows I watched with her).
