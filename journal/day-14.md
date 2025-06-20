@@ -1,0 +1,9 @@
+**Journal Entry Started At 10:03 PM EST on June 19th**
+
+I slept well again and also continue to take care of myself. Today I went to the doctors and that helped a lot. My blood pressure was perfect at the doctors office and any time I've tested it at home in the past, it was also perfect. I'm going to get blood work done at the end of the year.
+
+I confirmed my window AC unit should also fit in my new house's windows and also got a Verizon FIOS appointment for next week when we should be moving in. I also think I have a better gameplan for moving into the new house. All of these things done have helped relieve some stress and anxiety I've had recently on top of the other horrible feelings and emotions I've been going through.
+
+Today I went into my current home's library and saw a lot of my Mom's stuff. Ever since my Mom's passing, I've been finding myself having more intense flashbacks when looking at her stuff since I know she's now gone. I've always liked it when something like this happens in a movie or TV show (e.g. a character has a flashback to a bad or rememberable event). Just feels so real to have similar feelings to those flashbacks now and they're so real and painful. I often have flashbacks to being in the hospital when my Mom was on hospice. It's still very haunting to me. It just sucks.
+
+While I'm glad I am moving given the situation, it's so hard to let go of my childhood home (I lived in here since I was probably 4 years old or so). While a lot of the memories are here are painful now given my Mom is gone, I also don't want to really let go of a lot of them too. It's just weird and moving out so soon after my Mom passed comes with even more emotions during all of this.
