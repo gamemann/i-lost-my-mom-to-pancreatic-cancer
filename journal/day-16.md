@@ -1,0 +1,5 @@
+**Journal Entry Started At 11:25 PM EST on June 21st**
+
+I also didn't get as much sleep today as more previously. I haven't stated it before, but I did start prescribed medication after visiting the doctors a few weeks ago which was recommended (anti-depressants, Lexapro), I've heard a lot of good things about them in the past, but I know some side effects can happen early on. That might have contributed to the insane amount of sleep I got recently and also why my heart-rate dropped by 10 BPM average the last few weeks (which I see as a good thing).
+
+I've still been dealing with feelings of sadness thinking about my Mom, but today was definitely one of the better days I've had recently. The only thing lacking is motivation to really do anything with programming and such which I hope improves soon. I also finished packing most of the things in my room other than things I use every day like my home servers, desktop PC, bed, etc.

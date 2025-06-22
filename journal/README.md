@@ -16,3 +16,5 @@ I know it's odd to have public journal entries, but I'm really hoping they'll he
 * [Day 12](./day-12.md) (6-17-25)
 * [Day 13](./day-13.md) (6-18-25)
 * [Day 14](./day-14.md) (6-19-25)
+* [Day 15](./day-15.md) (6-20-25)
+* [Day 16](./day-16.md) (6-21-25)
