@@ -25,3 +25,4 @@ I know it's odd to have public journal entries, but I'm really hoping they'll he
 *Moved to new home and wasn't able to create entries*
 
 * [Day 26](./day-26.md) (7-1-25)
+* [Day 30](./day-30.md) (7-5-25)
