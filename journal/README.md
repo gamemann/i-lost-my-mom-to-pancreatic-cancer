@@ -26,3 +26,4 @@ I know it's odd to have public journal entries, but I'm really hoping they'll he
 
 * [Day 26](./day-26.md) (7-1-25)
 * [Day 30](./day-30.md) (7-5-25)
+* [Day 31](./day-31.md) (7-6-25)

@@ -1,0 +1,13 @@
+**Journal Entry Started At 8:28 PM EST on July 6th**
+
+I went to bed the night before around 9:30 PM since I was so tired and then woke up around 4:00 AM. According to my watch I only got around 5 hours and 50 minutes of sleep. When I don't get enough sleep (usually at least 7 hours), I usually get tired easily throughout the day and I'm not energized enough.
+
+I got up out of bed around 7:00 AM (stayed in bed for hours before since I really wanted to try to get back to sleep), showered, shaved, took my medication/vitamins, and performed my 3000 steps. I also took 200mg of caffeine, but I still got super tired around 11:30 AM or so. 
+
+I fell back to sleep for an hour and 30 minutes around this time. When I woke up, I took another 200mg of caffeine (400mg is considered the max daily dose for caffeine that's not bad apparently). I'm trying really hard to not need a nap throughout the day (I had this achieved earlier this year, but just haven't had the same energy recently regardless of exercising more, etc.). While the caffeine definitely helps at times, especially recently, I still want to eliminate it if I can because I think I might be suffering from the 'crash' as well when it starts to wear off.
+
+Anyways, today marked the one month anniversary of my Mom's death. The date itself didn't impact me much, but today I've just felt a lot worse emotionally than recent days (just feeling really sad and also have been a bit more anxious than normal). I've been missing my Mom a lot today, had dreams of her, and just a lot of memories/flashbacks of the hospital. Just unintentionally recalling the moments in my head of when I went in to see her when I started realizing she wasn't going to make it. I don't know, honestly today has sucked mentally. It's possible the medication might be making me down as well (this is common in the early days for a lot of people due to the brain chemicals being unbalanced). However, I'm still powering through and I know that this is to be expected. I just wish I could erase the pain but I just can't. I want to talk to my Mom so bad. Writing it out here helps at least, though.
+
+Towards the bright side, I made the most progress on open source projects since my Mom's passing today. I'm starting to write a low-level [C web server](https://github.com/gamemann/cweb) which I'm going to use to gain more experience.
+
+Also anxious about tomorrow for some things regarding the new house. We made a lot of progress this weekend with the new house overall.
