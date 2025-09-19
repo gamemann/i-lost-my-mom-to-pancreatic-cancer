@@ -3,6 +3,7 @@ This is a list of my public journal entries for each day after my Mom passed. Th
 I know it's odd to have public journal entries, but I'm really hoping they'll help somebody some day going through grief as well. Knowing there's a chance these entries may help others makes writing public journal entries worth it in my eyes. Plus just writing my thoughts done helps make me feel like I'm not so alone I guess and there's a chance somebody else could relate to the feelings after experiencing the loss of a loved one.
 
 ## Completed Entries
+### June
 * [Day 1](./day-1.md) (6-6-25)
 * [Day 2](./day-2.md) (6-7-25)
 * [Day 4](./day-4.md) (6-9-25)
@@ -22,10 +23,13 @@ I know it's odd to have public journal entries, but I'm really hoping they'll he
 * [Day 18](./day-18.md) (6-23-25)
 * [Day 19](./day-19.md) (6-24-25)
 
-*Moved to new home and wasn't able to create entries*
-
+### July
 * [Day 26](./day-26.md) (7-1-25)
 * [Day 30](./day-30.md) (7-5-25)
 * [Day 31](./day-31.md) (7-6-25)
 * [Day 33](./day-33.md) (7-8-25)
 * [Day 39](./day-39.md) (7-14-25)
+
+
+### September
+* [Day 105](./day-105.md) (9-18-25)
